@@ -1,0 +1,2 @@
+Dreambreen travels for ~6hrs from her college to Kaytie's hometown to visit him for the first time. Kaytie pretends to his family that he is going on a 100km ride and instead goes to meet Dreambreen in a nearby hotel. Dreambreen arrives and they hug for the first time. This visit also marks a number of firsts for their relationship: the first kiss, the first hug, the first sex, the first nap, etc.
+
